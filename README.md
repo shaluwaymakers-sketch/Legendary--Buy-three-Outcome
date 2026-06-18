@@ -1,1 +1,1 @@
-# Legendary--Buy-three-Outcome
+# Zenzury-Template based Competitor
